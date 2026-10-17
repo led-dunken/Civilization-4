@@ -218,4 +218,4 @@ Civilization 4 is offered as a **full free version** with **all features and upd
 Don't miss out on the opportunity to build your civilization! **Download Civilization 4 now and embark on your epic journey!**
 
 ---
-**Last updated:** 2026-10-17 21:52:53 UTC
+**Last updated:** 2026-10-17 23:38:46 UTC
